@@ -1,5 +1,5 @@
 Made by unity
 
-Making time = 3h
+Making time is 3h
 
 its not a good game
